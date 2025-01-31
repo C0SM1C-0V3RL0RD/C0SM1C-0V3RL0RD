@@ -3,7 +3,8 @@
 
 ![the-punisher](https://github.com/user-attachments/assets/d3011978-4962-47b7-9bdf-a50d90529974)
 
-[![Watch the video](https://youtu.be/zWSfpSjSO9g)
+
+
 
 
 
